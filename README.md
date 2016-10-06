@@ -38,3 +38,10 @@ YouTube earns advertising revenue from Google AdSense, a program which targets a
 
 Most of the content on YouTube has been uploaded by individuals, but media corporations including CBS, the BBC, Vevo, Hulu, and other organizations offer some of their material via YouTube, as part of the YouTube partnership program.[6] Unregistered users can watch videos, and registered users are permitted to upload an unlimited number of videos and add comments to videos. Videos deemed potentially offensive are available only to registered users affirming themselves to be at least 18 years old. In July 2016, the website was ranked as the second most popular site by Alexa Internet, a web traffic analysis company.[1]
 
+dfa
+df
+sd
+fsd
+f
+as
+f
